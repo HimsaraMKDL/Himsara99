@@ -1,6 +1,6 @@
 ## Hey, I'm Luthira 👋
 
-🎓 IT Undergraduate  | 🎬 Video Editor
+🎓 IT Undergraduate  | 🎬 Video Editor | Developer
 
 I love turning ideas into visuals.  
 From clean video edits to motion graphics, I enjoy mixing creativity with technology.
